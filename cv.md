@@ -1,3 +1,3 @@
 # Gregory Ente
 
-## Contacts
+## Contacts: GitHub
